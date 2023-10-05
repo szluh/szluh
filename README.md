@@ -1,1 +1,2 @@
-https://www.figma.com/file/ZOTnVQhExQRKKUpN3wBCZm/Alura-Plus---Layout-(Copy)?type=design&node-id=1-77&mode=design&t=3Rjw8D6feiMGMCB9-0
+![](https://i0.wp.com/www.casadaciencia.com.br/wp-content/uploads/2017/01/Tipos.jpg)
+Tipos De Bullying 
